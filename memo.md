@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Web-dev-Gaurab
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning web development
+- 💞️ I’m looking to collaborate on google
+- 📫 How to reach me ----
+- 😄 Pronouns: ...
+- ⚡ Fun fact: i wake up at 9:00 am
